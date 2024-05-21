@@ -1,2 +1,0 @@
-
-https://cdn.discordapp.com/attachments/1183826954147868823/1242120803428995102/IMG_0527.png?ex=664e0025&is=664caea5&hm=3e0d12c750def5b2adc70edffaf2574ad12c872e49a28eccaa3bbf9589676597&
