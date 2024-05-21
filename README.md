@@ -1,6 +1,2 @@
-# Hello!
-## Info About This Website.
-> This website is going to serve 1 purpose, which is me trying to create and decorate a full website by the help of ***@Korin*** and yout- i mean my big brain, also, this is gonna be an about me website to get to know more about me!
-> ***-@Truegreen*** *(I almost forgot about @MeNameCheese23 💀)
-## 1) Some basic info about me!
-> Im "Truegreen", Im not gonna be revealing my real name or age anytime soon here, But! what i can tell you is that i have a YouTube Channel! Its right [here](https://youtube.com/@truegreen1000)
+
+https://cdn.discordapp.com/attachments/1183826954147868823/1242120803428995102/IMG_0527.png?ex=664e0025&is=664caea5&hm=3e0d12c750def5b2adc70edffaf2574ad12c872e49a28eccaa3bbf9589676597&
